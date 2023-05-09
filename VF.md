@@ -10,5 +10,3 @@ Mi formación académica se basa en humanidades, cuento con casi quinto año de 
 Y con respecto a mi orientación en Fronted o Backend no la tengo al 100% definida.
 
 Lo ultimo que aprendi es relacionado a edicion de fotografias y videos a nivel profesional , por ende mi ultimo aprendizaje se podria decir que es el manejo de aplicaciones y paginas ,todas relacionadas directame con Adobes, Como por ejemplo el mas conocido que es photoshop.
-
-
